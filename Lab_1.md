@@ -1,3 +1,5 @@
+![Alt text](https://media.discordapp.net/attachments/560406276094558218/1011141822212476928/IMG_5656.jpg)
+
 #### Department of Electrical & Electronic Engineering, Imperial College London
 
 
